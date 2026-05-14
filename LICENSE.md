@@ -1,4 +1,4 @@
-# 
+# Enhance GlassWire for PC | GlassWire for Windows with advanced GlassWire for PC | GlassWire for Windows Helper | split-tunneling + high-speed-servers, the #1 helper. Includes
 
 
 
